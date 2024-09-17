@@ -1,0 +1,1 @@
+Holaa, esta tarea la realicé en colab para responder a Fintual en una de sus preguntas para postular a una pega. Estuvo entretenido y tuve que leer sobre algunos conceptos porque no estaba familiarizada con el mundo de las inversiones :)
